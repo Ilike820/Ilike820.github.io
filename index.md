@@ -10,3 +10,9 @@ The Asgardian Hero uses his almighty Powers to protect the Innocent and save all
 * wielder of Mjolnir and Stormbreaker
 * favorite game: "Get Help"
 * famous for his epic entries
+
+## Amazing Quote
+
+> This Drink.
+> I like it.
+> ANOTHER!!!
